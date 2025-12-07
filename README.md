@@ -1,0 +1,2 @@
+# My-ai-code
+Photography 
